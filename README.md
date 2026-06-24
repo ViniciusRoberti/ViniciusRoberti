@@ -27,4 +27,4 @@ Meu objetivo é construir uma carreira sólida na área de Tecnologia da Informa
 
 ## 📫 Minha Rede Social
 
-- Venha me conhecer melhor no meu LinkedIn: [Meu perfil LinkedIn.](www.linkedin.com/in/vinícius-moreira-roberti-42aa1a24a)
+- Venha me conhecer melhor no meu LinkedIn: [Meu perfil LinkedIn.](https://www.linkedin.com/in/vin%C3%ADcius-moreira-roberti-42aa1a24a/)
